@@ -1,1 +1,1 @@
-# CHE-181-Final-project
+This is Peijie Duan who is currently a chemical engineering student in University of Waterloo
